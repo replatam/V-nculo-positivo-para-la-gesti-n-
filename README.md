@@ -1,1 +1,4 @@
-# V-nculo-positivo-para-la-gesti-n-
+# Vinculo-positivo-para-la-gestion-de-la-reputacion-online
+En la gestión online, el vínculo directo con las personas es clave para la construcción de una reputación positiva. Las marcas deben estar atentas a las necesidades de sus seguidores y responder de forma inmediata en caso de que la situación lo amerite.
+La gestión de la reputación online es compleja porque son varios los factores que influyen en la práctica profesional. Lo importante es desarrollar acciones positivas que generen que una marca sea percibida de forma favorable por las personas. Algunos de los consejos a tener en cuenta consisten en asumir una actitud proactiva, partir de una estrategia bien elaborada y garantizar la visibilidad en el entorno virtual.
+https://replatam.com/vinculo-positivo-para-la-gestion-de-la-reputacion-online/
